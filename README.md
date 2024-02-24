@@ -14,7 +14,16 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-## My name is Julissa
-I live in Tianjin, China
+## My name is Julissa 👋🏻
+I live in Tianjin, China.🇨🇳
 
-I'm a 10th grader
+## I'm a 10th grader
+I attend an international school in Tianjin, China. 🏫
+
+## Hobbies💝
+ice skating⛸️
+piano🎹
+skateboard🛹
+snowboarding🏂
+surfing🏄🏼‍♀️
+listen to music🎧
