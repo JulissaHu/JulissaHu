@@ -22,8 +22,13 @@ I attend an international school in Tianjin, China. 🏫
 
 ## Hobbies💝
 ice skating⛸️
+
 piano🎹
+
 skateboard🛹
+
 snowboarding🏂
+
 surfing🏄🏼‍♀️
+
 listen to music🎧
